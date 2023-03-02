@@ -5,6 +5,8 @@
 **Here are some ideas to get you started:**
 
 🙋‍♀️ A short introduction - what is your organization all about?
+It is essential to have a dating app specifically for tall people because it can solve a critical problem faced by tall individuals in the dating world. Height is an essential physical attribute that people consider when looking for a partner, and being tall can be both an advantage and a disadvantage. While some people may find tall individuals attractive, others may be intimidated or uncomfortable with a height difference.
+
 🌈 Contribution guidelines - how can the community get involved?
 👩‍💻 Useful resources - where can the community find your docs? Is there anything else the community should know?
 🍿 Fun facts - what does your team eat for breakfast?
