@@ -18,3 +18,5 @@ Safety features: Tallhaven prioritizes user safety and offers a range of safety 
 
 Conclusion:
 Tallhaven is a unique dating app that offers a range of features designed specifically for tall singles. Its advanced search filters, height compatibility algorithm, and vibrant tall community make it easier for tall singles to find compatible partners. The app's safety features also enhance the overall user experience. With its focus on the unique needs of tall singles, Tallhaven offers a refreshing alternative to traditional dating apps.
+
+![Seth_Moffat_beautiful_mobile_design_for_dating_app_pink_attract_23cccde9-98f1-4324-bc28-f38f7314fdd8](https://user-images.githubusercontent.com/88804196/223038978-74a86669-6a53-479c-abb0-c16686f39ce0.png)
